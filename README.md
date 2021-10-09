@@ -1,7 +1,8 @@
 # Mess-Spruce
-Team Name - Team-14
 
-Mentor Name - Vijit Kumar
+Video link: https://drive.google.com/drive/folders/1p6UIyd1uQh9eCCpmvZtZAFplHAmh-yYv
+
+Medium Link: https://medium.com/newolf-society/mess-spruce-clean-the-mess-b9a38fe8be66
 
 Team members - 
 Abishek D
